@@ -1,4 +1,4 @@
-# Hi, I'm (your name)
+# Hi, I'm (Sabelo)
 
 ICT Applications Development graduate from Durban University of Technology.
 
