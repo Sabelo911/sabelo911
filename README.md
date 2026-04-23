@@ -18,4 +18,4 @@ Coding every day. No shortcuts. Just consistent progress.
 
 ## Connect
 
-(www.linkedin.com/in/sabelomkhize911)
+www.linkedin.com/in/sabelomkhize911
